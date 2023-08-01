@@ -1,1 +1,1 @@
-### Hi there 👋 Software developer currently enrolled in TechElevator's bootcamp!
+Software Developer | Bartender | Music Enthusiast, located in Glendale, AZ
